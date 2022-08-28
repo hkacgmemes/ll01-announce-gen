@@ -1,1 +1,0 @@
-![](https://raw.githubusercontent.com/hkacgmemes/ll01-announce-gen/main/extra/tsuzi_hsj.jpg)
